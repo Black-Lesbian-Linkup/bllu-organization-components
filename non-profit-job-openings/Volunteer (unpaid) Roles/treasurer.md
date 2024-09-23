@@ -1,3 +1,5 @@
+<img src="https://drive.google.com/uc?id=1GU0CGcnM2uM_Q1whZEREbJ9V7CfbGvSm" alt="Logo" width="250">
+
 ### Position Title: Treasurer (Board Treasurer)
 
 ### Organization: Black Lesbian Linkup (BLLU)
