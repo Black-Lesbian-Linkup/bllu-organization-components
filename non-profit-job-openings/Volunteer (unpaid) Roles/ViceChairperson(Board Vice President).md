@@ -1,18 +1,18 @@
-# Position Title: Vice Chairperson (Board Vice President)**
+### Position Title: Vice Chairperson (Board Vice President)
 
-# Organization:** Black Lesbian Linkup (BLLU)
+### Organization: Black Lesbian Linkup (BLLU)
 
-# Location:** Virtual (with some in-person meetings and events)
+### Location: Virtual (with some in-person meetings and events)
 
-### About Black Lesbian Linkup (BLLU):
+#### About Black Lesbian Linkup (BLLU):
 
 Black Lesbian Linkup (BLLU) is a global community organization dedicated to uniting, empowering, and supporting Black Lesbian+ individuals. Through social, educational, and cultural initiatives, we create safe spaces, foster connections, and provide resources that uplift our members and drive personal growth.
 
-### Position Overview:
+#### Position Overview:
 
 The Vice Chairperson (Board Vice President) of Black Lesbian Linkup (BLLU) plays a vital supportive role in the governance of the organization. They work closely with the Chairperson and board members to ensure the effective operation of the board and the success of BLLU’s initiatives. The Vice Chairperson steps into the Chairperson’s role in their absence and is instrumental in driving board engagement, strategy, and organizational goals.
 
-### Key Responsibilities:
+#### Key Responsibilities:
 
 **Support Leadership & Governance:**
 
@@ -45,7 +45,7 @@ The Vice Chairperson (Board Vice President) of Black Lesbian Linkup (BLLU) plays
 * Help develop strategies to increase funding and donor engagement to support BLLU’s sustainability.
 * Collaborate on budgeting and financial planning to ensure the organization’s long-term health.
 
-### Qualifications and Requirements:
+#### Qualifications and Requirements:
 
 * Leadership Experience: Demonstrated experience in leadership or management roles within non-profit, community-based, or social justice organizations.
 * Commitment to the Mission: A passion for empowering Black lesbian and LGBTQIA+ communities and aligning with BLLU’s vision and values.
@@ -55,16 +55,16 @@ The Vice Chairperson (Board Vice President) of Black Lesbian Linkup (BLLU) plays
 * Non-Profit Experience: Prior experience with non-profit governance, fundraising, or board roles is preferred.
 * Diversity & Inclusion: An understanding of the issues facing Black LGBTQIA+ communities, and a commitment to fostering inclusivity within the board and organization.
 
-### Time Commitment:
+#### Time Commitment:
 
 * Expected to attend quarterly board meetings (virtual and in-person).
 * Commit approximately 6-8 hours per month for board-related activities.
 * Additional time as required for strategic initiatives, fundraising, or special events.
 
-### Compensation:
+#### Compensation:
 
 This is a **voluntary position**. While there is no financial compensation, the Vice Chairperson will have the opportunity to contribute to meaningful social change within the Black lesbian and LGBTQIA+ communities.
 
-### Application Process:
+#### Application Process:
 
 To apply for the Vice Chairperson role, please submit your resume and a cover letter detailing your experience and passion for Black Lesbian Linkup through [BLLU’s website](include application page link).
