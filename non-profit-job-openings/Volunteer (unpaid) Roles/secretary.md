@@ -1,18 +1,18 @@
-## Position Title: Secretary (Board Secretary)**
+### Position Title: Secretary (Board Secretary)
 
-## Organization:** Black Lesbian Linkup (BLLU)
+### Organization: Black Lesbian Linkup (BLLU)
 
-## Location:** Virtual (with some in-person meetings and events)
+### Location: Virtual (with some in-person meetings and events)
 
-### About Black Lesbian Linkup (BLLU):
+#### About Black Lesbian Linkup (BLLU):
 
 Black Lesbian Linkup (BLLU) is a global community organization dedicated to uniting, empowering, and supporting Black Lesbian+ individuals. Through social, educational, and cultural initiatives, we create safe spaces, foster connections, and provide resources that uplift our members and drive personal growth.
 
-### Position Overview:
+#### Position Overview:
 
 The Secretary (Board Secretary) of Black Lesbian Linkup is responsible for maintaining accurate records of board activities, ensuring transparent communication, and upholding the organization’s governance standards. The Secretary works closely with the Chairperson, Vice Chairperson, and other board members to ensure all decisions and actions are properly documented and accessible. They also manage correspondence and support administrative needs to help the board function smoothly.
 
-### Key Responsibilities:
+#### Key Responsibilities:
 
 **Meeting Management:**
 
@@ -46,7 +46,7 @@ The Secretary (Board Secretary) of Black Lesbian Linkup is responsible for maint
 * Help ensure board decisions are carried out according to BLLU’s bylaws and governance policies.
 * Support the development and maintenance of board governance practices and policies, such as conflict of interest policies.
 
-### Qualifications and Requirements:
+#### Qualifications and Requirements:
 
 * Organizational Skills: Exceptional attention to detail and the ability to manage multiple tasks efficiently.
 * Communication Skills: Strong written and verbal communication skills, with the ability to clearly document discussions and decisions.
@@ -56,16 +56,16 @@ The Secretary (Board Secretary) of Black Lesbian Linkup is responsible for maint
 * Governance Experience: Understanding of non-profit governance or willingness to learn about board procedures and compliance.
 * Collaboration: Ability to work well with board members and support them in maintaining an efficient board process.
 
-### Time Commitment:
+#### Time Commitment:
 
 * Expected to attend quarterly board meetings (virtual and in-person).
 * Commit approximately 5-8 hours per month for meeting preparation, documentation, and correspondence.
 * Additional time as required for special initiatives or compliance activities.
 
-### Compensation:
+#### Compensation:
 
 This is a **voluntary position**. While there is no financial compensation, the Secretary will have the opportunity to contribute to the growth and governance of an impactful organization serving Black Lesbian+ communities.
 
-### Application Process:
+#### Application Process:
 
 To apply for the Secretary role, please submit your resume and a brief cover
