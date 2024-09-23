@@ -38,4 +38,4 @@ This is a paid position with two payment options:
 * **Royalty Payment Structure:** A share in the organization's revenue based on bi-quarterly performance.
 
 **Application Process:**
-To apply for the Executive Assistant role, please submit your resume and a cover letter detailing your relevant experience and passion for Black Lesbian Linkup through [BLLU's website] (include application page link).
+To apply for the Executive Assistant role, please submit your resume and a cover letter detailing your relevant experience and passion for Black Lesbian Linkup through [Executive Assistant Application](https://forms.gle/u5S3hTNsMM6TTZsSA).
