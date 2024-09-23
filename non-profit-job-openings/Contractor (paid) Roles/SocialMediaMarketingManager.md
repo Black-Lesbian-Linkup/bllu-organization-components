@@ -38,4 +38,4 @@ This is a paid position with two payment options:
 * **Royalty Payment Structure:** A share in the organization's revenue based on bi-quarterly performance.
 
 **Application Process:**
-To apply for the Social Media Marketing Manager role, please submit your resume and a cover letter detailing your relevant experience and passion for Black Lesbian Linkup through [BLLU's website] (include application page link).
+To apply for the Social Media Marketing Manager role, please submit your resume and a cover letter detailing your relevant experience and passion for Black Lesbian Linkup through [Social Media Manager Application](https://forms.gle/1NEvFCQaGXVq9k8n9).

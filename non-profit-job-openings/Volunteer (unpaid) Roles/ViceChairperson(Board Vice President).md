@@ -69,4 +69,4 @@ This is a **voluntary position**. While there is no financial compensation, the 
 
 #### Application Process:
 
-To apply for the Vice Chairperson role, please submit your resume and a cover letter detailing your experience and passion for Black Lesbian Linkup through [BLLU’s website](include application page link).
+To apply for the Vice Chairperson role, please submit your resume and a cover letter detailing your experience and passion for Black Lesbian Linkup through [Vice Chairperson Application](https://forms.gle/8Tw2KP8GE27Sm9zw8).

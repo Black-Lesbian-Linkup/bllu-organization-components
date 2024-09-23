@@ -66,4 +66,4 @@ This is a **voluntary position**. While there is no financial compensation, the 
 
 #### Application Process:
 
-To apply for the Treasurer role, please submit your resume and a cover letter detailing your financial experience and passion for Black Lesbian Linkup through [BLLU’s website] (include application page link).
+To apply for the Treasurer role, please submit your resume and a cover letter detailing your financial experience and passion for Black Lesbian Linkup through [Treasurer Application](https://forms.gle/78BxE2QJfw4Ykk6i6).

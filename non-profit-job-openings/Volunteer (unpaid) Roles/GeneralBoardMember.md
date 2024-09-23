@@ -63,4 +63,4 @@ This is a **voluntary position**. While there is no financial compensation, Gene
 
 #### Application Process:
 
-To apply for the General Board Member role, please submit your resume and a cover letter detailing your experience and passion for Black Lesbian Linkup through [BLLU’s website](include application page link).
+To apply for the General Board Member role, please submit your resume and a cover letter detailing your experience and passion for Black Lesbian Linkup through [Board Member Application](https://forms.gle/q9hFbyKTUc4F5wb18).

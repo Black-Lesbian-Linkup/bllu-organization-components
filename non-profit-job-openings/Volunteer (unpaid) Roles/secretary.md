@@ -71,3 +71,4 @@ This is a **voluntary position**. While there is no financial compensation, the 
 #### Application Process:
 
 To apply for the Secretary role, please submit your resume and a brief cover
+detailing your experience and passion for Black Lesbian Linkup through [Secretary Application](https://forms.gle/KFqdu7fDQCTDkjxs6).
