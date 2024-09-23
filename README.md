@@ -1,6 +1,6 @@
 <img src="https://drive.google.com/uc?id=1GU0CGcnM2uM_Q1whZEREbJ9V7CfbGvSm" alt="Logo" width="250">
 
-Welcome to the Black Lesbian Linkup (BLLU) Repository!
+Welcome to the Black Lesbian Linkup (BLLU) Organization Components Repository!
 
 ### Who We Are
 
