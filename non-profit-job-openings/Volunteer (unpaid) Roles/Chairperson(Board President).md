@@ -1,3 +1,7 @@
+
+<img src="https://drive.google.com/uc?id=1GU0CGcnM2uM_Q1whZEREbJ9V7CfbGvSm" alt="Logo" width="250">
+
+
 ### Position Title: Chairperson (Board President)  
 ### Organization: Black Lesbian Linkup (BLLU)  
 ### Location: Virtual (with some in-person meetings and events)
