@@ -16,10 +16,10 @@ To apply for any of our open positions, please submit your resume and a cover le
 
 **Find Us Online:**
 
-- Website:  [BLLU's website](include-a-link-to-your-application-page)
+- Website:  [BLLU's website](https://blacklesbianlinkup.org/#home)
 - Social Media:
-    - Instagram: [link to Instagram page](https://www.instagram.com/blacklesbianlinkup/)
-    - Facebook: [link to Facebook page](https://www.facebook.com/people/Black-Lesbian-Linkup/100094294586330/)
+    - Instagram: [Follow Us On IG](https://www.instagram.com/blacklesbianlinkup/)
+    - Facebook: [Follow Us On FB](https://www.facebook.com/people/Black-Lesbian-Linkup/100094294586330/)
  - Join Our Discord Community:[Discord Invitation](https://discord.com/invite/Zqppz6Z6Yk)
  - Apply to be a BLLU Ambassador: [Become an Ambassador](https://forms.gle/cNeYwKKeJ2xGN2uq9) 
 
