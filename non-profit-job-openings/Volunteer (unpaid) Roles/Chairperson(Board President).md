@@ -58,4 +58,5 @@ The Chairperson (Board President) of Black Lesbian Linkup plays a crucial leader
 This is a voluntary position. While there is no financial compensation, the Chairperson will have the opportunity to make a significant impact on the Black lesbian+ communities worldwide.
 
 #### Application Process
-To apply for the Chairperson role, please submit your resume and a brief cover letter detailing your relevant experience and why you are passionate about Black Lesbian Linkup. Applications can be submitted through [Chairperson Application](https://forms.gle/rBBcq5dB4PXkViWj7).
+
+Applications Closed
