@@ -12,6 +12,7 @@ Black Lesbian Linkup (BLLU) is a global community organization dedicated to unit
 
 #### Position Overview:
 
+(Not accepting applications at this time.)
 The Vice Chairperson (Board Vice President) of Black Lesbian Linkup (BLLU) plays a vital supportive role in the governance of the organization. They work closely with the Chairperson and board members to ensure the effective operation of the board and the success of BLLU’s initiatives. The Vice Chairperson steps into the Chairperson’s role in their absence and is instrumental in driving board engagement, strategy, and organizational goals.
 
 #### Key Responsibilities:
