@@ -10,6 +10,9 @@
 Black Lesbian Linkup (BLLU) is a global community organization dedicated to uniting, empowering, and supporting Black Lesbian+ individuals. Through social, educational, and cultural initiatives, we create safe spaces, foster connections, and provide resources that uplift our members and drive personal growth.
 
 #### Position Overview
+
+(Not accepting applications at this time.)
+
 The Chairperson (Board President) of Black Lesbian Linkup plays a crucial leadership role in guiding the Board of Directors and ensuring the overall success of the organization. This person will be responsible for facilitating board meetings, collaborating with the Executive Director (CEO), and leading the board’s strategic decision-making processes. The Chairperson will work closely with the board to shape the vision, mission, and long-term goals of BLLU, and ensure that the organization’s activities align with its values of community, inclusivity, and empowerment.
 
 #### Key Responsibilities
